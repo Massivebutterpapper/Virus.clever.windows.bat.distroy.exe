@@ -1,2 +1,2 @@
-# Virus.clever.windows.bat.distroy.exe
+# NOTHINGS FINE!
 || VIRUS || watchout!
